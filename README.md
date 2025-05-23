@@ -1,4 +1,4 @@
-# Njrat Pink Editions 🎀
+# Njrat Pink Edition 🎀
 
 Coeded By Rafef , Sexales
 
